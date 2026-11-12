@@ -67,7 +67,10 @@ Detalhes em [ESPECIFICACOES-TECNICAS.md](ESPECIFICACOES-TECNICAS.md).
 
 ## Contato
 
-LouizVolution — [E-MAIL DE CONTATO] · [WHATSAPP]
+LouizVolution
+
+- E-mail: [luizricardorodrigues0102@gmail.com](mailto:luizricardorodrigues0102@gmail.com)
+- WhatsApp: [(64) 99334-7799](https://wa.me/5564993347799)
 
 ---
 
